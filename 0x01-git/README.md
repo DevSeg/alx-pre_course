@@ -1,1 +1,2 @@
-My Second Commit with the team
+updating read me 
+
