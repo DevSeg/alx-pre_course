@@ -1,2 +1,1 @@
-updating read me 
-in a new way
+a way that really suits me 
