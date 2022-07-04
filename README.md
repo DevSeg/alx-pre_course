@@ -1,1 +1,1 @@
-updating the read me now 
+Hot fix
